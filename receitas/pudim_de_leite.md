@@ -4,7 +4,7 @@
 
  
 
-#### **Pudim do bom:**
+#### **Pudim:**
 
 - 1 lata de leite condensado
 - 1 lata de leite
